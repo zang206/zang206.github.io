@@ -1,4 +1,4 @@
-You are at http://zang206.procknation.com which drops you here at http://zang206.github.io. 
+You are at zang206's GitHub user page. 
 
 [Zang206's Profile and Repositories at GitHub.com site](https://www.github.com/zang206)
 
